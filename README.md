@@ -6,7 +6,7 @@
 
 The Walkthrough is available on Youtube:
 
-https://www.youtube.com/watch?v=pPmWjfAJ1Nc
+https://www.youtube.com/watch?v=yfi5zm7GndI
 
 Support My Work With A Cup Of Coffee
 
